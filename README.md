@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **shubhambatham999@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/shubham-batham-b12136268/</h3>
 <p align="left">
 </p>
 
